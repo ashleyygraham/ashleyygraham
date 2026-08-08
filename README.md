@@ -3,7 +3,7 @@
   <img src="image-Photoroom.png" width="300">
 </p>
 
-<p align=center> Followed = littlegrace says you're tuff & i fw you, keep being u !
+<p align=center> Followed = littlegrace says you're tuff & i fw u 
 <p align=center> block if unwanted ok?ok
   
   ##### <p align="center"> follow main: [XYUMILUVSU](https://github.com/ThatOrangeCatt)
