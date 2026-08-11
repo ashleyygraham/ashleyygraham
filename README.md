@@ -4,8 +4,6 @@
 </p>
 
 <p align=center> Followed = littlegrace says you're tuff & i fw u 
-<p align=center> block if unwanted ok?ok
-  
-  ##### <p align="center"> follow main: [XYUMILUVSU](https://github.com/ThatOrangeCatt)
+<p align=center> spam follow . block if unwanted ok?ok
 
   <p align=center>  ──── ꒰ ᧔☆᧓ ꒱ ────
