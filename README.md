@@ -1,5 +1,5 @@
 <p align=center>  ──── ꒰ ᧔☆᧓ ꒱ ────
-<p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/sign ata for free 🍰-ab9786?style=flat"></a>
+<p align="center"> <a href="https://xyumxyum.atabook.org/"><img src="https://img.shields.io/badge/atabook for free 🍪-ab9786?style=flat"></a>
   <p align=center> 
   <img src="image-Photoroom.png" width="79">
 </p>
